@@ -1,4 +1,4 @@
-# ![tumblr_629659fbd3823d5477952a02c29accea_5b3a9eb7_1280](https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/068586d1-28f9-4da1-b61a-204e289343e3)
+![tumblr_c79fb4037f07aa1922238353324498b3_a674019d_1280](https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/edf917ed-5a1b-44d7-bb4e-0ed5d22f92e8)
 
 # 👾 Mab
 
