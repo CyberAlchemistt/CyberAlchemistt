@@ -2,10 +2,6 @@
 
 👾 Mab
 
-https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/e3d9f13f-3b3d-460b-81f5-9c31ed0886ae
-
-
-
 **`Front-end Web Developer`**
 
 <p>Hey there, I'm a recent web programmer and self-proclaimed cyber security enthusiast. When I'm not lost in thought reading philosophy books, you can probably find me indulging in some sci-fi movies. So, if you need someone to save your website from intergalactic hackers, or just want to chat about Plato's theories, hit me up!</p>
