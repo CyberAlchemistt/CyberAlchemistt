@@ -1,5 +1,6 @@
-# ![pixel-jeff-witch](https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/cf914815-2228-4764-8ea5-7e7c4a5c8417)
-👾 Mab
+![yurii-ray-06-gif-export-200](https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/653a6bab-b285-414d-9d31-a3663d37fbe3)
+
+# 👾 Mab
 
 **`Front-end Web Developer`**
 
