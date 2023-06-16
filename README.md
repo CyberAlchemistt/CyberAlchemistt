@@ -1,4 +1,4 @@
-![yurii-ray-06-gif-export-200](https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/653a6bab-b285-414d-9d31-a3663d37fbe3)
+![pixel-jeff-night2](https://github.com/CyberAlchemistt/CyberAlchemistt/assets/133987451/b62ca89d-2c1f-4082-85c7-79cbfc350b41)
 
 # 👾 Mab
 
